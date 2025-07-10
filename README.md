@@ -10,4 +10,4 @@
 
 这里汇集了欧美日韩精品资源，包括欧美一级特黄AA大片、日本特色AAA大片以及韩国青草自慰喷水直播间。内容丰富多样，视频高清流畅，满足用户多样观看需求。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/toi20250710/toi10 ）</span>
